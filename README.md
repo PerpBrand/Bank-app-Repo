@@ -2,4 +2,4 @@
 
 ## By PerpBrand
 
-- Enomfon assisted me in achieving this.
+- To the success of this project...Thanks Enomfon!
